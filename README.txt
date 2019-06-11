@@ -1,1 +1,2 @@
-frederick
+dikyu
+Manulife University
